@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @JosselinCLO
+- 👀 I’m interested in quantitative genetics, inbreeding and polyploidy!
